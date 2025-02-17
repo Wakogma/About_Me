@@ -1,3 +1,4 @@
 # Me
-My name is Malachi, but I also don't mind being called Dorthpeck :)
-I'm okay with crude jokes and c+h (unless my name says otherwise)
+My name is Malachi, but I also don't mind being called Dorthpeck :D
+I'm okay with crude jokes and C+H (unless my name says otherwise)
+What else do i put here? Um..,..,. Go play Point of No Return on Roblox!
